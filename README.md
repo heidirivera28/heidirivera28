@@ -2,7 +2,7 @@
 - 👀 I’m interested in expanding my knownledge.
 - 🌱 I’m currently learning Computer Science.
 - 💞️ I’m looking to collaborate on anything that will help my career.
-- 📫 How to reach me heidirivera7@gmail.com
+- 📫 How to reach me heidi.riveracastro@outlook.com
 - 😄 Pronouns: she,her.
 - ⚡ Fun fact: I like to read and draw. 
 
